@@ -13,3 +13,10 @@ VOICE CONTROLLED
 IT CAN ACCESS YOUR COMPPUTER
 REAL TIME AI RESPONSE
 ITS PRETTY SECURE AS IT ON YOUR SYSTEM
+
+
+
+THE CODE-->>>>>
+
+
+<img width="1915" height="1025" alt="image" src="https://github.com/user-attachments/assets/570e2769-746b-4307-96a0-c49614413561" />
